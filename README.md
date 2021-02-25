@@ -1,1 +1,1 @@
-Available for preview at https://thechimp.store/typing-game
+Available for preview at https://weakeyes.dev/typing-game
